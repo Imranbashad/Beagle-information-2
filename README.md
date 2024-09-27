@@ -1,1 +1,0 @@
-# Beagle-information-2
